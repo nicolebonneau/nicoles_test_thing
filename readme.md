@@ -1,5 +1,6 @@
 This is info on nicoles test thing. 
 ---
 
-# About Nicole
-stuff about nicoles test thing here
+# About Nicole B
+
+Frannie took a class and gave me the idea.
